@@ -1,0 +1,1 @@
+# shoptrendly.me
